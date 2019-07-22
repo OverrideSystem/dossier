@@ -1,5 +1,5 @@
 # Aetheria
-##She-Ra And The Princesses of Power fictive
+## She-Ra And The Princesses of Power fictive
 <img align="right" src="https://i.imgur.com/cZIPN3u.png">
 
 **Nickname:** She-Ra
