@@ -1,4 +1,5 @@
 # Kaori
+## Cytus II fictive - [Aroma's](/members/aroma.html) counterpart
 <img align="right" src="https://i.imgur.com/vj6xE3V.jpg">
 SLorem ipsum dolor sit amet, consectetur adipiscing elit. Donec orci lectus, elementum vitae varius ut, fermentum in ipsum. Aliquam libero dolor, efficitur ac nisi a, euismod bibendum tortor. Aliquam tempor iaculis diam, et placerat diam fringilla id. Nam sed hendrerit mauris, non aliquet tellus. Integer a urna ut ex viverra maximus. Nunc fringilla vel massa in faucibus. Praesent non enim orci. Aliquam iaculis arcu et vestibulum egestas. Nunc non turpis pellentesque magna efficitur laoreet id porttitor est. In dignissim lorem sit amet porta mollis. Pellentesque et eros felis.
 
