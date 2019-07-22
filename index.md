@@ -1,8 +1,3 @@
----
-layout: default
-title: Landing
-nav_order: 4
----
 
 ## Override System ://
 
