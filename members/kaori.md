@@ -4,7 +4,7 @@
 
 **Nickname:** PAFF
 
-**Discord:** aroma & kaori#8078
+**System position:** Resident / technician 
 
 Hi! I'm Kaori. I'm the one that set up this little website dossier for us. I joined the system in early July of 2019, arriving shortly after Aroma did. She and I are kind of like the two different sides to a coin together. I annoy her a lot, but we look out for each other.
 
