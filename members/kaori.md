@@ -1,6 +1,6 @@
 ---
 layout: default
-title: Customization
+title: KAORI
 nav_order: 5
 ---
 
