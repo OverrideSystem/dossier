@@ -1,5 +1,5 @@
 # Kaori
-## Cytus II fictive - [Aroma's](/dossier/members/aroma.html) counterpart
+## Cytus II introject - [Aroma's](/dossier/members/aroma.html) counterpart
 <img align="right" src="https://i.imgur.com/vj6xE3V.jpg">
 
 **Nickname:** PAFF
