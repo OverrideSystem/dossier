@@ -6,4 +6,4 @@ Goose energy extraordinaire, free-spirited and goofy. Kaori enjoys dealing with 
 
 All in all, Kaori is essentially the big sister in the system, doing a little bit of everything to keep things running smoothly to the best of her ability.
 
-— ***"I've been dreaming about disaster,"****
+— ***"I've been dreaming about disaster,"***
