@@ -2,12 +2,6 @@
 ## Cytus II introject - [Aroma's](/dossier/members/aroma.html) counterpart
 <img align="right" src="https://i.imgur.com/vj6xE3V.jpg">
 
-**Nickname:** PAFF
+The embodiment of goose energy. Free-spirited and goofy. She enjoys dealing with tech and helping maintain the system's daily schedule. She also has a stubborn streak, refusing to back down once she sets her mind on something. All in all, Kaori is essentially the big sister in the system, doing a little bit of everything to keep things running smoothly to the best of her ability.
 
-**System position:** Resident / technician 
-
-Hi! I'm Kaori. I'm the one that set up this little website dossier for us. I joined the system in early July of 2019, arriving shortly after Aroma did. She and I are kind of like the two different sides to a coin together. I annoy her a lot, but we look out for each other.
-
-I like singing (though our body isn't very good at it), rhythm games (especially Cytus, haha!), and doing some light tech stuff.
-
-Here's [my music style!](https://www.youtube.com/watch?v=nMkSaja6A0c)
+— `I've been dreaming about disaster.`
